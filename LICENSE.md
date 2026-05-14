@@ -1,4 +1,4 @@
-#  
+#  Experience scary shawarma kiosk like never before with scary shawarma kiosk Script best, the #1 Script. Includes auto-sell and teleport for
 
 
 
